@@ -49,7 +49,7 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#a8e5eb}Friends, ask to be added.}$</summary>  
   
-<br>[Gordon!](https://github.com/thewardenmcsm) 
+<br>[Gordon!](https://github.com/aspenmoor) 
 <br>[Lumi!](https://github.com/luminescent-oceans)
 <br>[Shelly!](https://github.com/vintagefossil)
 <br>[Mabel!](https://github.com/madelinedovetergent)
