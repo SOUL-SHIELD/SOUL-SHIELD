@@ -31,7 +31,7 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
 </table>
 </p>
 <p align="center">
-<a href="https://soul-vester.atabook.org/">ata</a>　　<a href="https://github.com/yellowdeltarune/">main</a>　　 <a href="https://pronouns.cc/@QoM/">prns</a> <a
+<a href="https://soul-vester.atabook.org/">ata</a>　　<a href="https://github.com/yellowdeltarune/">main</a>　　 <a href="https://pronouns.cc/@QoM/">prns</a>　　 <a <a href="https://docs.google.com/document/d/1b08qmU6PqArPOOR2f9l1s2D1j5y0hGWBEqRwfyy9v9I/edit?tab=t.0">awareness</a> 　　 <a
 </th>
 </table>
 
