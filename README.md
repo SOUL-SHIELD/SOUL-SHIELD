@@ -59,5 +59,6 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
 <br>[Roxy/Lotus!](https://github.com/DearestRoxy)
 <br>[Jax!](https://github.com/V4MPZNF4NGZ)
 <br>[Freedom!](https://github.com/Princ3ssLuna)
+<br>[Gourdy!](https://github.com/KarinHolloway)
  
   </details>
