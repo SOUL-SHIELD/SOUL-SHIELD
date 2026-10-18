@@ -1,3 +1,11 @@
+Anonymous
+October 17, 2026 at 5:48:43 PM
+github:
+wolfcutiee ·
+02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf
+
+whoever is impersonating my sister please lmk, the id is 167.89.242.57 on ata, this isn't what wolfcutiee said at all please tell me if u see this id on ur atas or anything like that and whoever did this fuck you, your weird as fuck and leave my sister alone
+
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="380" align="left">
 
@@ -45,6 +53,9 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k2imnse2k6tlpbkpvoxigigjay&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=444444&bar_color_cover=true">
   </a>
 </p>
+
+
+
 
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#a8e5eb}Friends, ask to be added.}$</summary>  
