@@ -35,12 +35,19 @@ I don't care if you don't trust this but i have been a victim to these types of 
 <details><summary> <br>$\text{\small\it\color{#a8e5eb}blacklist}$</summary>  
 
 <br> Fictionkilled Family 
-<br> Karin / Jill 
+<br> Karin / Jill (pedo)
 <br> Minnie
 <br> banbanned (the three musks)
 <br> RIGM0RMORTIS (the three musks)
 <br> robotinretrospect (the three musks)
+<br> luiceren 
 <br> kitdere
 <br> cocopuffpuffs
 <br> laceduppup
 <br> SideCharacter-001
+<br> Dandyzworldyuri
+<br> arthurmorganslove (the pedophile pals) 
+<br> m4gg0tzz / codyypup (the pedophile pals)
+<br> PennywisefansDN (the pedophile pals)
+
+<br> this will be updated whenever, your on here for a reason so don't bother asking why.
