@@ -40,3 +40,5 @@ I don't care if you don't trust this but i have been a victim to these types of 
 <br> banbanned
 <br> RIGM0RMORTIS
 <br> robotinretrospect
+<br> kitdere
+<br> cocopuffpuffs
