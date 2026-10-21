@@ -37,9 +37,9 @@ I don't care if you don't trust this but i have been a victim to these types of 
 <br> Fictionkilled Family 
 <br> Karin / Jill 
 <br> Minnie
-<br> banbanned
-<br> RIGM0RMORTIS
-<br> robotinretrospect
+<br> banbanned (the three musks)
+<br> RIGM0RMORTIS (the three musks)
+<br> robotinretrospect (the three musks)
 <br> kitdere
 <br> cocopuffpuffs
 <br> laceduppup
