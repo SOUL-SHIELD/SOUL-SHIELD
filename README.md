@@ -1,4 +1,4 @@
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=souls&color=254F41"
+
 
 
 <p align="center">
@@ -27,3 +27,16 @@ Theirs also a doc i have about someone who stalked me on pony town and also trie
 I don't care if you don't trust this but i have been a victim to these types of things and seeing it on my friends makes me mad, as someone for me who isn't in the best mental state and the only way to feel better in terms of coping is yumeshipping as it's the only thing that calms me down, please don't seek out to harass these people regardless of their bad actions, if you side with them i really don't care but thanks for reading, and also please don't write sorry messages and stuff on my ata i won't say anything about them if you do, and i can't really stop you from doing that anyways. If you see any drama on my ata best to ignore it, most of it is just jokes for me to personally cope with or something i had to address to somebody, don't try to stick your nose in these situations unless i'm being open about it. Also to the people who say you don't care about our little dramas, you don't and thats that, but it's not your situation, if you have enough intent to say something about it, you clearly care just keep it to yourself or too your friend group because i see this way too much on different atas on how they "dont" care but then have their own little take on the situation. Thanks for reading :)
 
 </details>
+
+<p align="center">
+
+
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#a8e5eb}blacklist}$</summary>  
+
+<br> Fictionkilled Family 
+<br> Karin / Jill 
+<br> Minnie
+<br> banbanned
+<br> RIGM0RMORTIS
+<br> robotinretrospect
