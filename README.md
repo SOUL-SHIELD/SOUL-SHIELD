@@ -1,3 +1,6 @@
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=souls&color=254F41"
+
+
 <p align="center">
 
 
