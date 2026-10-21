@@ -50,5 +50,6 @@ I don't care if you don't trust this but i have been a victim to these types of 
 <br> m4gg0tzz / codyypup (the pedophile pals)
 <br> PennywisefansDN (the pedophile pals)
 <br> a1p1yuri
+<br> cupcakefetti
 
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
