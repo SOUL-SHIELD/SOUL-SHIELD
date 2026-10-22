@@ -1,21 +1,5 @@
-<div align="left">
 
-<div class="center">
-<a href="https://www.pokemon-adoption.de">
-<img src="https://www.yatta-tempel.de/animierte/5785.gif" style="width: 46px; height: 49px;" alt="jacko" /></a><br />
-<b>Name:</b> jacko<br />
-Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
-</div>
 
-<div align="center">
-i love my cuties
-
-<div align="right">
-<div class="right">
-<a href="https://www.pokemon-adoption.de">
-<img src="https://www.yatta-tempel.de/animierte/644gino.gif" style="width: 104px; height: 92px;" alt="soulvester" /></a><br />
-<b>Name:</b> soulvester<br />
-Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 
 - - -
 
