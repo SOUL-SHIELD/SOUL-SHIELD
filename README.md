@@ -66,10 +66,10 @@ I don't care if you don't trust this but i have been a victim to these types of 
 <br> laceduppup
 <br> SideCharacter-001
 <br> Dandyzworldyuri
-<br> arthurmorganslove (the pedophile pals) 
-<br> m4gg0tzz / codyypup (the pedophile pals)
-<br> PennywisefansDN (the pedophile pals)
+<br> arthurmorganslove  
+<br> m4gg0tzz / codyypup 
+<br> PennywisefansDN 
 <br> a1p1yuri
 <br> cupcakefetti
 
-<br> this will be updated whenever, your on here for a reason so don't bother asking why.
+<br> this will be updated whenever, your on here for a reason so don't bother asking why, nor do not start something with me because of this list, thanks.
