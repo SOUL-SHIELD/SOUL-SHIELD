@@ -1,4 +1,4 @@
-<div align="left">
+<div align="center">
 
 <div class="center">
 <a href="https://www.pokemon-adoption.de">
@@ -6,7 +6,7 @@
 <b>Name:</b> jacko<br />
 Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 
-<div align="right">
+<div align="center">
 <div class="right">
 <a href="https://www.pokemon-adoption.de">
 <img src="https://www.yatta-tempel.de/animierte/644gino.gif" style="width: 104px; height: 92px;" alt="soulvester" /></a><br />
