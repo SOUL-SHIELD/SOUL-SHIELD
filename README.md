@@ -1,19 +1,19 @@
-<div align="center">
+<div align="left">
 
-<div class="center">
+<div class="left">
 <a href="https://www.pokemon-adoption.de">
 <img src="https://www.yatta-tempel.de/animierte/jirachi-bunt.gif" style="width: 64px; height: 46px;" alt="jacko" /></a><br />
 <b>Name:</b> jacko<br />
 Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 
-<div align="center">
+<div align="right">
 <div class="right">
 <a href="https://www.pokemon-adoption.de">
 <img src="https://www.yatta-tempel.de/animierte/644gino.gif" style="width: 104px; height: 92px;" alt="soulvester" /></a><br />
 <b>Name:</b> soulvester<br />
 Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 
-
+- - -
 
 <div align="center">
 
