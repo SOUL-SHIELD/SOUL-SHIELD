@@ -7,7 +7,7 @@
 Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Orphanage</a>
 
 <div align="center">
-i love my cuties, theres gonna be a img here soon ok
+i love my cuties
 
 <div align="right">
 <div class="right">
