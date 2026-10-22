@@ -69,8 +69,7 @@ if you side with them i really don't care but thanks for reading, and also pleas
 <br> SideCharacter-001
 - - -
 <br> Dandyzworldyuri
-<br> arthurmorganslove  
-<br> m4gg0tzz / codyypup 
+<br> arthurmorganslove  <br> m4gg0tzz / codyypup 
 <br> PennywisefansDNI
 <br> a1p1yuri
 <br> cupcakefetti
