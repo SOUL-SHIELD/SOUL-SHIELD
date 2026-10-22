@@ -21,7 +21,7 @@ Adopt one yourself! @<a href="https://www.pokemon-adoption.de">Pok&eacute;mon Or
 
 <div align="center">
 
-<sub> please don't think i agree on what my friends do, some of the actions i don't and will never support saying this just in case because i don't want any fingers pointing at me if something happens and it doesn't have to do with me please don't try to drag me into it, no this isn't directed to anyone this is just for my own safety and mental health.
+<sub> please don't think i agree on what my friends do, some of the actions i don't and will never support saying this just in case because i don't want any fingers pointing at me if something happens and it doesn't have to do with me please don't try to drag me into it, no this isn't directed to anyone this is just for my own safety and mental health. if you only care about the drama instead of most of our well-beings dni 
 
 <p align="center">
 
