@@ -8,7 +8,10 @@ tysm [daggerstruckmage](https://github.com/daggerstruckmage) , [casinotown](http
 - - -
 
 <div align="center">
-SOULVESTER of pony town & YELLOW (deltarune) of pony town
+SOULVESTER of pony town & YELLOW (deltarune) of pony town <img width="20" height="50" alt="image" src="https://github.com/user-attachments/assets/18aa901b-4631-4616-a57e-0119d7869f8a" /> 
+<img width="30" height="50" alt="image" src="https://github.com/user-attachments/assets/73ed20a9-382b-4623-995c-9c87f2aaf778" />
+
+
   
 - - -
 
