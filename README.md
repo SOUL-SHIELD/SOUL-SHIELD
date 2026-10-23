@@ -1,9 +1,14 @@
+<div align="center">
+
+tysm [daggerstruckmage](https://github.com/daggerstruckmage) , [casinotown](https://github.com/casinotown) & all my other nominations on my main account :D
+
 
 
 
 - - -
 
 <div align="center">
+**SOULVESTER of pony town & YELLOW (deltarune) of pony town
 
 <sub> please don't think i agree on what my friends do, some of the actions i don't and will never support saying this just in case because i don't want any fingers pointing at me if something happens and it doesn't have to do with me please don't try to drag me into it, no this isn't directed to anyone this is just for my own safety and mental health. if you only care about the drama instead of most of our well-beings dni 
 
