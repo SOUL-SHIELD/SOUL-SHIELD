@@ -4,6 +4,7 @@ tysm [daggerstruckmage](https://github.com/daggerstruckmage) , [casinotown](http
 
 
 
+<sub> if your blocked its probably because you're a flameknight shipper or soulvester yume, nothing personal i just find flameknight uncomfy to me, reminding me of past times & this goes the same for romesse.
 
 - - -
 
