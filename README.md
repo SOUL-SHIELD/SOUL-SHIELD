@@ -1,1 +1,4 @@
-all being rmked, including straw if i feel like it , sign ata/straw idk and c+h anytime unless im w/ my friends ty
+<div align="center">
+
+<img width="75" height="160" alt="image" src="https://github.com/user-attachments/assets/60f4b592-ce5a-4ca0-b568-df8b8569fb75" />
+
