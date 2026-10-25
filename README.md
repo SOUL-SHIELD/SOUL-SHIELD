@@ -1,5 +1,5 @@
 <div align="center">
 
-<img width="75" height="160" alt="image" src="https://github.com/user-attachments/assets/60f4b592-ce5a-4ca0-b568-df8b8569fb75" />
+<a href="https://soul-vester.atabook.org/">ata</a>　　<a href="https://github.com/yellowdeltarune/">main</a>　　 <a href="https://pronouns.cc/@QoM/">prns</a>　　  <a href="https://soulvesterr.straw.page">straw</a> 　　 
 
-doubles dni
+soulvester doubles are perm hidden
