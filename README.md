@@ -1,6 +1,6 @@
 <div align="center">
 
-
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e83227" /> 
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/images-6-removebg-preview.png" width="400" height="auto" align="center"></img></a>
 
