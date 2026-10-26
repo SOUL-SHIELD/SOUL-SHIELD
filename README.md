@@ -18,7 +18,7 @@
 
 
 <table align="center"><th>
-<details><summary> <br>$\text{\small\it\color{#d41914}dni (took from domo mb)}$</summary>  
+<details><summary> <br>$\text{\small\it\color{#e83227}dni (took from domo mb)}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
