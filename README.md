@@ -17,3 +17,32 @@
 　　 <a href="https://soul-vester.atabook.org/">ata</a>　　<a href="https://github.com/yellowdeltarune/">main</a>　　 <a href="https://pronouns.cc/@QoM/">prns</a>　　  <a href="https://soulvesterr.straw.page">straw</a> 　　 
 
 
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#d41914}dni (took from domo mb)}$</summary>  
+<br> ship discourse
+<br> pedos + zoos
+<br> if you have beef with my friends
+<br> Fictionkilled Family 
+<br> Karin / Jill (pedo)
+<br> M4gg0tzz
+<br> Arthurmorganslove
+<br> PennywisefansDNI
+<br> banbanned (the three musks)
+<br> RIGM0RMORTIS (the three musks)
+<br> robotinretrospect (the three musks)
+<br> luiceren 
+<br> kitdere
+<br> cocopuffpuffs
+<br> laceduppup
+<br> SideCharacter-001
+<br> Dandyzworldyuri
+<br> a1p1yuri
+<br> theglichedsystem
+<br> Minibuh
+<br> Jesterbloom
+<br> Lightblade17
+<br> Cloudy-OG
+<br> mallyblaze
+<br> Cobblebob
+<br> reflectivedetective
+<br> this will be updated whenever, your on here for a reason so don't bother asking why.
