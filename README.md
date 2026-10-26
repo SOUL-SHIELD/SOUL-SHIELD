@@ -37,7 +37,6 @@
 <br> SideCharacter-001
 <br> Dandyzworldyuri
 <br> a1p1yuri
-<br> theglichedsystem
 <br> Minibuh
 <br> Jesterbloom
 <br> Lightblade17
