@@ -3,14 +3,14 @@
 
 
 
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e83227" /> 
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e1a5bc" /> 
 
 <sub> i don't care about pro/dark i have most hidden anyways & ship discourse 
 
 13:04[s-ata to bmf any1 welcome] FOLLOW @SNOWYRESCUE ON GITHUB, I GIVE FREE TIER 4
 
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/tumblr_674736913679cbb7953cf13e47206af2_e10b7178_1280-removebg-preview.png" width="400" height="auto" align="center"></img></a>
+<img src="https://file.garden/asK8R4fOscgWTCmj/tumblr_d6822d7dec59a2f1affeac34148a8864_810ea54c_1280.png" width="400" height="auto" align="center"></img></a>
 
 
 <sub> "A scattered dream that's like a far-off memory.
