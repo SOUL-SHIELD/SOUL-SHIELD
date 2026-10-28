@@ -34,4 +34,4 @@
 
 і  ⠀  ᥣ᥆᥎ᥱ  ⠀  ⍴rᥱssіᥒg  ⠀  ᑲᥙ𝗍𝗍᥆ᥒs!
 
-<img src="https://wilardo.crd.co/assets/images/gallery05/ad60aa3d.png?v=fbf31c4c"/>
+<img src="https://wilardo.crd.co/assets/images/gallery22/e338ce22.png?v=fbf31c4c"/>
