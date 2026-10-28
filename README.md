@@ -14,7 +14,7 @@
 
 
  
-<p align="left">
+<p align="center">
   
 <img width="110" src="https://wilardo.crd.co/assets/images/gallery09/b6382f0f.gif?v=fbf31c4c"/> 
 
