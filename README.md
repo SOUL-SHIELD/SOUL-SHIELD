@@ -23,7 +23,7 @@
 <img width="110" src="https://wilardo.crd.co/assets/images/gallery26/089ee7ca.gif?v=fbf31c4c"/>
 
    
-  evan ⠀   or ⠀   matt⠀  /⠀  ⠀15y⠀ <img width="30" src="https://wilardo.crd.co/assets/images/gallery06/681b7ba9.png?v=fbf31c4c"/>⠀ he / him / they⠀ ⠀+  ⠀ infj
+  evan ⠀   or ⠀   matt⠀  /⠀  ⠀15y⠀ <img width="25" src="https://wilardo.crd.co/assets/images/gallery06/681b7ba9.png?v=fbf31c4c"/>⠀ he / him / they⠀ ⠀+  ⠀ infj
 <p align="center">
  phantasia⠀ fictkin ⠀+  ⠀  soulvester ⠀  yume
 <p align="center">
