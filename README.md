@@ -3,7 +3,7 @@
 
 
 
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e1a5bc" /> 
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e1a5bc" /> <img src="https://wilardo.crd.co/assets/images/gallery02/088822e6.gif?v=fbf31c4c"/>
 
 
 
