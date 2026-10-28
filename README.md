@@ -34,4 +34,4 @@
 
 і  ⠀  ᥣ᥆᥎ᥱ  ⠀  ⍴rᥱssіᥒg  ⠀  ᑲᥙ𝗍𝗍᥆ᥒs!
 
-<img src="https://64.media.tumblr.com/tumblr_lsznmtd08v1ql1l0v.gif"/> <img src="https://64.media.tumblr.com/tumblr_lsznmtd08v1ql1l0v.gif"/>
+<img src="https://wilardo.crd.co/assets/images/gallery05/ad60aa3d.png?v=fbf31c4c"/>
