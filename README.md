@@ -76,3 +76,6 @@ What to not do: Harass them, send death threats or any uncivil things you can sp
 <img width="60" src="https://graphic.neocities.org/sakura-bouncing.gif"/>
 
 </td></tr></table>
+
+
+<img src="https://dividers.crd.co/assets/images/gallery03/54510155.gif?v=05d33f91"/>
