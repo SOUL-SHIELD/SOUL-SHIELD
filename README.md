@@ -60,6 +60,7 @@ Please Mass Report @m4ggotz, you can do this by using the doc pictures as eviden
 - Spread the doc to others who aren't aware.
 - Report them every 1-2 weeks if the reports don't get through.
 - Screenshot this, or link my github for people to view this or anything.
+- Talk about the situation
 
 
 <sub> whatever you do with the doc is simply all up to your choice, take this doc as you must if you simply just read it that's all enough for me and the others.
