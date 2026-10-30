@@ -59,5 +59,5 @@ What to not do: Harass them, send death threats or any uncivil things you can sp
 <div align="center">
 
 
-<img width="20" src="https://graphic.neocities.org/sakura-side-step.gif"/> <img width="20" src="https://graphic.neocities.org/sakura-bouncing.gif"/>
+<img width="60" src="https://graphic.neocities.org/sakura-side-step.gif"/> <img width="60" src="https://graphic.neocities.org/sakura-bouncing.gif"/>
 </td></tr></table>
