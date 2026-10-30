@@ -62,7 +62,7 @@ Please Mass Report @m4ggotz, you can do this by using the doc pictures as eviden
 - Screenshot this, or link my github for people to view this or anything.
 
 
-<sub> whatever you do with the doc is simply all up to your choice.
+<sub> whatever you do with the doc is simply all up to your choice, take this doc as you must if you simply just read it that's all enough for me and the others.
 
 Evan do they want to get better?: It is heavily implied that they don't, their mechanism hurts them more than it makes them heal. If maggotz or wlfs ?? Does get perm banned/suspended, i do hope they can recover or heal privately and in the right way, being with friends that make this mindset worse isn't great either, it is best to try and not tell them things that can make this worse, they tried to say that they "do" but they are making little to no attempt to do so. I might just be one person but i hope this reaches out as i tend to it to be and to others.
 
