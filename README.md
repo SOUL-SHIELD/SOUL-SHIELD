@@ -5,7 +5,7 @@
 
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=ᵀᴼᴳᴱᵀᴴᴱᴿ&color=e1a5bc" /> <img src="https://wilardo.crd.co/assets/images/gallery02/088822e6.gif?v=fbf31c4c"/>
 
-
+<sub> i dont ship phantasia x discard, i simply love them both their my favorites and i see them as a duo that does silly stuff together <D
 
 <p align="center">
 <img width="350" src="https://file.garden/asK8R4fOscgWTCmj/tumblr_d6822d7dec59a2f1affeac34148a8864_810ea54c_1280.png" align="right">
