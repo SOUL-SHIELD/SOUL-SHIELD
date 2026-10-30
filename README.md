@@ -56,9 +56,10 @@ What can i do after reading the doc?
 
 Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @PringlesMorty. You can contact  ponytownhelp@gmail.com to make the reports. You may also do the following
 
-- Add the two docs for awareness, making more traction.
-- Spread the doc to others who aren't aware
-- Report them every 1-2 weeks if the reports don't get through
+- Add the two docs for awareness to your github, making more traction.
+- Spread the doc to others who aren't aware.
+- Report them every 1-2 weeks if the reports don't get through.
+- Screenshot this, or link my github for people to view this or anything.
 
 
 <sub> whatever you do with the doc is simply all up to your choice.
