@@ -54,7 +54,14 @@ What can i do after reading the doc?
 
 [M4ggotz Doc 1](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [M4ggotz Doc 2](https://docs.google.com/document/d/1rIUWwXT7_WKxtXYrv5L023NqCthWwHqrSWpZuz0c5j8/edit?tab=t.0)
 
-Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @PringlesMorty. You can contact  ponytownhelp@gmail.com to make the reports. 
+Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @PringlesMorty. You can contact  ponytownhelp@gmail.com to make the reports. You may also do the following
+
+- Add the two docs for awareness, making more traction.
+- Spread the doc to others who aren't aware
+- Report them every 1-2 weeks if the reports don't get through
+
+
+<sub> whatever you do with the doc is simply all up to your choice.
 
 Evan do they want to get better?: It is heavily implied that they don't, their mechanism hurts them more than it makes them heal. If maggotz or wlfs ?? Does get perm banned/suspended, i do hope they can recover or heal privately and in the right way, being with friends that make this mindset worse isn't great either, it is best to try and not tell them things that can make this worse, they tried to say that they "do" but they are making little to no attempt to do so. I might just be one person but i hope this reaches out as i tend to it to be and to others.
 
