@@ -52,7 +52,7 @@
 
 What can i do after reading the doc? 
 
-Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @PringlesMorty. 
+Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @PringlesMorty. You can contact  ponytownhelp@gmail.com to make the reports.
 
 What to not do: Harass them, send death threats or any uncivil things you can speak about it but its best to not send these people threats or anything bad, i get these people are collectivity wrong with their deception of "fiction doesn't affect reality" but this doesn't justify any harassment nor do i condone harassment, just reporting and reading the doc to spread it to others is enough. Although i cannot stop you from harassing or anything like that, i don't want this to be blamed on me if the person acts like that, that is on them. Thanks for reading! 
  
