@@ -54,7 +54,9 @@ What can i do after reading the doc?
 
 [M4ggotz Doc 1](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [M4ggotz Doc 2](https://docs.google.com/document/d/1rIUWwXT7_WKxtXYrv5L023NqCthWwHqrSWpZuz0c5j8/edit?tab=t.0)
 
-Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , etc. You can contact  ponytownhelp@gmail.com to make the reports. You may also do the following
+Please Mass Report @m4ggotz, you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: @ourcrimsonskies , @pawlickk , @NerdyMorty <sub>(I am adding you back, you are still friends with them, you practically are enabling them by making them trust in thinking or saying "your f/o is canon" and all that bullcrap, you did this to yourself at the end of the day and you're going against your dni just to interact with these people, don't contact me to ask to remove you, i will not as you are just as bad as their friends.). 
+
+You can contact  ponytownhelp@gmail.com to make the reports. You may also do the following
 
 - Add the two docs for awareness to your github, making more traction.
 - Spread the doc to others who aren't aware.
