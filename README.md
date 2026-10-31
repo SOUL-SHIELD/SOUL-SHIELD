@@ -54,7 +54,7 @@ What can i do after reading the doc?
 
 [M4ggotz Doc 1](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [M4ggotz Doc 2](https://docs.google.com/document/d/1rIUWwXT7_WKxtXYrv5L023NqCthWwHqrSWpZuz0c5j8/edit?tab=t.0)
 
-Please Mass Report [@m4ggotz](https://github.com/m4gg0tzz), you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: [@ourcrimsonskies](https://github.com/ourcrimsonskies) , [@pawlickk](https://github.com/pawlickk) , [@NerdyMorty](https://github.com/NerdyMorty) <sub>(I am adding you back, you are still friends with them, you practically are enabling them by making them trust in thinking or saying "your f/o is canon" and all that bullcrap, you did this to yourself at the end of the day and you're going against your dni just to interact with these people, don't contact me to ask to remove you, i will not as you are just as bad as their friends.). 
+Please Mass Report [@m4ggotz](https://github.com/m4gg0tzz), you can do this by using the doc pictures as evidence or anything weird they say by screenshotting them, same with their friends of the following: [@ourcrimsonskies](https://github.com/ourcrimsonskies) , [@pawlickk](https://github.com/pawlickk) , [@GlassesMorty](https://github.com/GlassesMorty) <sub>(I am adding you back, you are still friends with them, you practically are enabling them by making them trust in thinking or saying "your f/o is canon" and all that bullcrap, you did this to yourself at the end of the day and you're going against your dni just to interact with these people, don't contact me to ask to remove you, i will not as you are just as bad as their friends. Adding on you also decided to double down and get your friend to mock and me for what i said about you yumeshipping with 4 different mortys is weird and yea it is, for a character that remains 14 throughout the entire series and you'll grow older it's going to get weird eventually and to be fair i don't care if you get your friend to clip me they can do it all they want it's still just very immature for one who was basically begging me to take them off and when i decided to put them back on just trying to start stuff that doesn't need to be started). 
 
 You can contact  ponytownhelp@gmail.com to make the reports. You may also do the following
 
@@ -63,6 +63,7 @@ You can contact  ponytownhelp@gmail.com to make the reports. You may also do the
 - Report them every 1-2 weeks if the reports don't get through.
 - Screenshot this, or link my github for people to view this or anything.
 - Talk about the situation
+- Read [Domo's readme](https://github.com/snowyrescue)
 
 
 <sub> whatever you do with the doc is simply all up to your choice, take this doc as you must if you simply just read it that's all enough for me and the others.
@@ -73,6 +74,8 @@ Their friends telling them "it's ok to do this or that" or saying "your f/o is c
 
 
 What to not do: Harass them, send death threats or any uncivil things you can speak about it but its best to not send these people threats or anything bad, i get these people are collectivity wrong with their deception of "fiction doesn't affect reality" but this doesn't justify any harassment nor do i condone harassment, just reporting and reading the doc to spread it to others is enough. Although i cannot stop you from harassing or anything like that, i don't want this to be blamed on me if the person acts like that, that is on them. Thanks for reading! 
+
+
  
 <div align="center">
 
